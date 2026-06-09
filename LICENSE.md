@@ -1,4 +1,4 @@
-
+stealth Scripts for run for brainrots is the best run for brainrots Script, featuring invisibility and infinite resources. Safe and powerful for all
 
 
 
